@@ -15,7 +15,7 @@
 
 - 📫 How to reach me: **ramanujdixit123@gmail.com**
 
-- 📄 Know about my experiences: [My Resume](https://rb.gy/tn698)
+- 📄 Know about my experiences: [My Resume](https://tinyurl.com/ramanuj-resume)
 
 ---
 
